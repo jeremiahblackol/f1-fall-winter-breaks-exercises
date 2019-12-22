@@ -1,4 +1,4 @@
-# Your Name
+# Jeremiah Black
 
 ## Winter Challenges
 
